@@ -1,1 +1,1 @@
-# Divdimensiju-mas-vi
+# Divdimensiju-masivi
